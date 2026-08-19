@@ -3,4 +3,4 @@
 
 YOOOO im victiniz
 
-check out the links!!! pls
+check out the links on my profile!!! (especially the pronouns.cc thing plspsspls)
